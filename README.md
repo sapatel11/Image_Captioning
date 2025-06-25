@@ -83,10 +83,10 @@ Shail Patel
 [GitHub](https://github.com/sapatel11) | [LinkedIn](https://linkedin.com/in/shail-p11)
 
 Vrushali Ranadive
-Github | LinkedIn
+[Github](https://github.com/Vrushali31) | [LinkedIn](https://www.linkedin.com/in/vrushali-ranadive-79437a20a/)
 
 Yash Chaudhary
 Github | LinkedIn
 
 Devanshu Shah
-Github | LinkedIn
+[Github](https://github.com/devanshu-777) | [LinkedIn](https://www.linkedin.com/in/devanshu-shah777/)
