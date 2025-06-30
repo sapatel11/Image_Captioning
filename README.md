@@ -86,7 +86,7 @@ Vrushali Ranadive
 [Github](https://github.com/Vrushali31) | [LinkedIn](https://www.linkedin.com/in/vrushali-ranadive-79437a20a/)
 
 Yash Chaudhary
-Github | LinkedIn
+[GitHub](https://github.com/YashChaudhary16) | [LinkedIn](https://www.linkedin.com/in/yashchaudhary16/)
 
 Devanshu Shah
 [Github](https://github.com/devanshu-777) | [LinkedIn](https://www.linkedin.com/in/devanshu-shah777/)
